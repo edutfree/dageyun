@@ -18,7 +18,7 @@
 
 大哥云优惠码：
 
-大哥云618特惠包年8折优惠代码：[20240618](https://dageyun.org/out/dage)
+大哥云加速中秋节特惠包年8折优惠代码：[815](https://dageyun.org/out/dage)
 
 ## 大哥云怎么样？
 
