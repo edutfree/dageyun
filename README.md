@@ -1,12 +1,12 @@
-# 大哥云官网地址2024最新入口+优惠码
+# 大哥云官网地址2025最新入口+优惠码
 
 大哥云跑路了吗？暂时没有。不过机场总会有跑路风险，为尽可能减少损失，选购套餐可按月支付。下面是最新地址：
 
 大哥云官网永久地址：[dageyun.com](https://dageyun.org/out/dage)
 
-地址1：[https://2024la.com](https://2024la.com/#/register?code=3jP2Cuqu)
+地址1：[https://2024la.com](https://aff02.dgy01.com/#/register?code=3jP2Cuqu)
 
-地址2：[https://2025la.com](https://2025la.com/#/register?code=3jP2Cuqu)
+地址2：[https://2025la.com](https://dageyun.org/out/dage)
 
 ## 简介
 
@@ -18,7 +18,7 @@
 
 大哥云优惠码：
 
-大哥云加速中秋节特惠包年8折优惠代码：[815](https://dageyun.org/out/dage)
+大哥云加速2025新年特惠包年8折优惠代码：[20250101](https://dageyun.org/out/dage)
 
 ## 大哥云怎么样？
 
