@@ -18,7 +18,7 @@
 
 大哥云优惠码：
 
-大哥云加速2025新年特惠包年8折优惠代码：[20250101](https://dageyun.org/out/dage)
+大哥云加速2025五一特惠包年8折优惠代码：[dgy51](https://dageyun.org/out/dage)
 
 ## 大哥云怎么样？
 
