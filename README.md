@@ -1,10 +1,10 @@
 # 大哥云官网地址
 
-大哥云官网永久地址：[dageyun.com](https://dageyun.org/out/dage)
+大哥云官网永久地址：[dageyun.com](https://xuv.cc/out/dage)
 
 [大哥云直连地址1](https://aff02.dgy02.com//#/register?code=3jP2Cuqu)
 
-[大哥云直连地址2](https://dageyun.org/out/dage)
+[大哥云直连地址2](https://xuv.cc/out/dage)
 
 ## 简介
 
@@ -16,7 +16,7 @@
 
 大哥云优惠码：
 
-大哥云加速2025五一特惠包年8折优惠代码：[dgy51](https://dageyun.org/out/dage)
+大哥云加速2025五一特惠包年8折优惠代码：[dgy51](https://xuv.cc/out/dage)
 
 ## 大哥云怎么样？
 
@@ -34,4 +34,4 @@
 | 套餐B | 按季付 | 129.00 | 300 GB | 无限制 |
 | 套餐B | 按年付 | 299.00 | 500 GB | 无限制 |
 
-[![大哥云套餐价格](dageyun_20240620_114435.png)](https://dageyun.org/out/dage)
+[![大哥云套餐价格](dageyun_20240620_114435.png)](https://xuv.cc/out/dage)
